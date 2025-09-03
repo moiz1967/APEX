@@ -1,1 +1,1 @@
-This give the professional and Cricket Operations experience in IPL T2 league
+This gives the professional experience and Cricket Operations experience in IPL T20 league
